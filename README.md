@@ -13,3 +13,4 @@ Se você está buscando um desenvolvedor dedicado, apaixonado por tecnologia e c
 Clique no link abaixo para acessar meu portfólio completo e conhecer mais sobre os projetos nos quais trabalhei. Fique à vontade para entrar em contato comigo para discutir oportunidades de parceria ou projetos interessantes. Estou ansioso para colaborar e trazer resultados excepcionais para sua equipe! 📩
 
 https://lnkd.in/da62DWaZ
+![Captura de tela 2023-06-13 183329](https://github.com/marckosalks/Portifolio/assets/84982384/64b51156-317d-4908-be91-fbeaef83d62a)
